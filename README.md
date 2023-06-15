@@ -1,5 +1,5 @@
 # YourTurn
-DISCORD LINK : https://discord.gg/Wa2VZT9
+DISCORD LINK : https://discord.gg/gsYYeJj6rG
 https://www.youtube.com/watch?v=AhpwUwC4gr0
 
 
