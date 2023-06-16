@@ -41,7 +41,7 @@ How many computers can I use it on?
 
 
 
-Will it work in Classic World of Warcraft?
+Will it work in Classic World of Warcraft / Wrath of the Lich King?
  - Yes
 
 
