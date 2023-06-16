@@ -1,11 +1,12 @@
 # YourTurn
 DISCORD LINK : https://discord.gg/gsYYeJj6rG
-https://www.youtube.com/watch?v=AhpwUwC4gr0
+
+IN ACTION : https://www.youtube.com/watch?v=AhpwUwC4gr0
 
 
 
 Subscribe
-https://www.paypal.com/webapps/hermes?token=04L84197AB912674G&mfid=1625524993705_afd22337c8c7d&useraction=commit
+https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=WCKBUXS6HPE5J
 
 Unsubscribe
 https://www.paypal.com/signin?returnUri=https%3A%2F%2Fwww.paypal.com%2Fmyaccount%2Fautopay&state=%2F
